@@ -1,6 +1,6 @@
 ![Image](https://github.com/user-attachments/assets/5b4fb84c-be92-42c8-ab2e-80f8952558c2)
 
-![Image](https://github.com/user-attachments/assets/6e19a5fb-7b92-4b81-9882-5279699826a5)
+![Image](https://github.com/user-attachments/assets/6e462201-c975-4e09-b483-0fdefc5ad534)
 
 ![Image](https://github.com/user-attachments/assets/59e0e027-dbc0-466d-b5d4-402f05a90a56)
 
